@@ -1,2 +1,1 @@
-# Kaabe-
-Ku nool hargaisa 
+![Uploading 17607139719557478748546451849063.png…]()
